@@ -6,8 +6,6 @@
 
 🌎 São Paulo - SP, Brasil
 
-🔎 Atualmento estou a procura da primeira oportunidade de trabalho na area da tecnologia
-
 🎓 (UNINOVE) Cursando Analise e Desenvolvimento de Sistema
 
 🎓 Certicado em LGPD (CertiProf)
