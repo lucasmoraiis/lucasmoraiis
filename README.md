@@ -1,8 +1,6 @@
-## Lucas Morais
+## Olá, sou o Lucas Morais
 
 🧑 Tenho 17 anos de idade
-
-😄 Pronomes: ele/dele
 
 🌎 São Paulo - SP, Brasil
 
